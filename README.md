@@ -1,1 +1,0 @@
-# stc-sa.github.io
